@@ -4,6 +4,10 @@
 During Sep. 25 to 29, 2023, I participated in a comprehensive fieldwork study on marine biodiversity at the Shimoda Marine Research Center. Working closely with a study group, we collected marine samples, which we later observed and analyzed in a laboratory setting. This academic experience presented numerous firsts for me: it was my first visit to Shimoda, Izu, my first experience aboard a research ship, and my introduction to the world of plankton through microscopic observation.  
     One of the most profound realizations during this study for me was the richness of marine biodiversity, exemplified by the amount of living plankton found in only a few droplets of seawater. This report will first provide an overview of our sample collection process, then explain our data analysis procedures, and discuss the implications concerning the pivotal role of science in environmental conservation.
 
+![Pic5](https://github.com/Damen-C/field-work/assets/112738658/bf815a4b-610d-4ce0-8bc0-c89a26ec3950)  
+Pic1: We boarded a research ship to collect samples
+
+
 
 
 ## Sample Collection and Data Analysis:
