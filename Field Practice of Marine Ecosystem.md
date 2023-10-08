@@ -8,7 +8,9 @@ During Sep. 25 to 29, 2023, I participated in a comprehensive fieldwork study on
 Pic1: We boarded a research ship to collect samples
 
 <img width="533" alt="Pic4" src="https://github.com/Damen-C/field-work/assets/112738658/29c6885b-de2f-4381-983b-b4fbe5ef02b1">  
+
 Pic2: Planktons observed with a microscope 
+
 
 
 
